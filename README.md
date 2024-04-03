@@ -1,4 +1,4 @@
-## 👋 Hi there! I'm Ishimwe Kevine, 
+## ✌️ Well, hello there! I'm Ishimwe Kevine, 
 A passionate product designer and frontend developer aiming to create meaningful digital experiences that leave a lasting impression.
 
 ## 🎨 As a product designer, 
